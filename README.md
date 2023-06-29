@@ -1,3 +1,3 @@
 - @ManthesDad
-- Discord: C!#0468
+- Discord: .ekittn
 
